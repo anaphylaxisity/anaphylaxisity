@@ -1,6 +1,6 @@
-![1000015886](https://github.com/user-attachments/assets/a7145d56-3c73-4242-8908-9ec1fc4de9f5)
+![1000015934](https://github.com/user-attachments/assets/2c3392cf-354b-4791-804d-b0cb5f06063a)
 
 
-<sub>BlackBoxWarrior - OKULTRA — Will Wood<sub>
+<sub>The Ballad Of Mona Lisa — Panic! At The Disco<sub>
 
-![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=12&duration=2000&pause=900&color=AD0000&width=435&lines=Lithium+and+Dialectics%2C+boy+you+really+is+defective;CBT+don't+seem+effective+for+that+Cluster+B%2C+accept+it;Offer+up+your+innocence%2C+please+ignore+the+side+effects;You've+lost+your+mind+and+almost+lost+your+life+before;So+you'll+be+fine)
+![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=12&duration=2000&pause=900&color=927241&width=435&lines=Say+what+you+mean%2C+tell+me+I'm+right;And+let+the+sun+rain+down+on+me;Give+me+a+sign%2C+I+wanna+believe;Woah+oh+oh%2C+Mona+Lisa;You're+guaranteed+to+run+this+town;Woah+oh+oh%2C+Mona+Lisa;I'd+pay+to+see+you+frown)
