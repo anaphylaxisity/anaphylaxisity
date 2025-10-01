@@ -1,4 +1,6 @@
-![1000016378](https://github.com/user-attachments/assets/d544c8f4-54c4-4247-9093-1151183d25ef)
+![1000016985](https://github.com/user-attachments/assets/ac1205b1-2c82-40fd-9034-2c2ca1aa3ae8)
+
+ctto
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [strawpage](https://deliriouslydelirium.straw.page/) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[atabook](https://fluxaration.atabook.org/)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [strawpage](https://extrememazai.straw.page/) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[atabook](https://fluxaration.atabook.org/)
